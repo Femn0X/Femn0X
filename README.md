@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Femn0X
+- 👀 I’m interested in coding lol
+- 💞️ I’m looking to collaborate on anything just ask :3
+- 📫 How to reach me email:lucawinecker@gmail.com
+- 😄 Pronouns: she/her|they/them
